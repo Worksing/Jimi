@@ -1,2 +1,2 @@
 # Jimi
-home schooler
+homeschooler
